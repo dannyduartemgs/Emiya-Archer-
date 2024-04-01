@@ -13,5 +13,5 @@ If you wish to contact me here's my discord: dannyduartemgs <br />
 A newbie like me could use some tips. 
 
 Credits:
-Archer Model: https://www.deviantart.com/nerudrum/art/Archer-EMIYA-ver-0-92-565780211 <br />]
+Archer Model: https://www.deviantart.com/nerudrum/art/Archer-EMIYA-ver-0-92-565780211 <br />
 Audrey for the skin Tutorial: https://www.youtube.com/watch?v=tQUqlNFgrDM <br />
