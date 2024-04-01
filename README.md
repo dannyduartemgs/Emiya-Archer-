@@ -12,6 +12,6 @@ I'll probably update this once I learn how to replace the bow. In the meantime, 
 If you wish to contact me here's my discord: dannyduartemgs <br />
 A newbie like me could use some tips. 
 
-Credits:
+Credits: <br />
 Archer Model: https://www.deviantart.com/nerudrum/art/Archer-EMIYA-ver-0-92-565780211 <br />
 Audrey for the skin Tutorial: https://www.youtube.com/watch?v=tQUqlNFgrDM <br />
